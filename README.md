@@ -1,2 +1,0 @@
-# bank.github.io
-gygygyggygygygy
